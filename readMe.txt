@@ -1,1 +1,1 @@
-You killed my father
+line deleted
